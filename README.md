@@ -1,4 +1,4 @@
- *Boas vindas ao meu perfil black_heart*
+ *Boas vindas ao meu perfil* 🖤
 
 _Meu nome é Ana julia Risso_
 
